@@ -30,4 +30,4 @@ DIECAST-GALLERY
   
   
 ## 3. 프로젝트 정리
-링크 : 
+링크 :  https://junyoung1.tistory.com/111
